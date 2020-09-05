@@ -8,5 +8,5 @@
 - I can help you with CSS Grid Layout e Flexbox and arts for Games and Websites
 - Looking for help with Game Dev
 - You can reach me through my e-mail : marcosbauab@gmail.com // or through my Linkedin: https://www.linkedin.com/in/marcos-vinicius-706710174/
-- I love Jesus, arts, game dev and playing.  
+- I love Jesus, arts, web, game dev and playing.  
 
